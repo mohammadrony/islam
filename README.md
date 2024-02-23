@@ -10,7 +10,7 @@ Collection of Islamic online resources.
 - [Mothers of The Believers](https://www.youtube.com/playlist?list=PLYZxc42QNctUITKI6GwP70OsirXlsBHOs)
 - [Lives of the Sahaba](https://www.youtube.com/playlist?list=PLYOnU0Yk8VGYcnIPK6fo1Bke7k_geYCfA)
 
-### Description of future events
+### Some lecture series
 
 - [The Signs of Judgement Day](https://www.youtube.com/playlist?list=PLYZxc42QNctVjKA2ulHYeZsnuI_tieZoc)
 - [The Life in The Barzakh](https://www.youtube.com/playlist?list=PLYZxc42QNctVw0HhfP7N02hNlScC-3UhN)
