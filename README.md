@@ -1,6 +1,10 @@
 # Islam
 
-Collection of Islamic online resources.
+Collection of Islamic resources.
+
+## Documents
+
+- [Yearly Prayer Time - Dhaka](./prayer/prayer-time-dhaka.md)
 
 ## Lectures
 
