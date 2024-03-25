@@ -19,11 +19,12 @@ Collection of Islamic resources.
 - [The Signs of Judgement Day](https://www.youtube.com/playlist?list=PLYZxc42QNctVjKA2ulHYeZsnuI_tieZoc)
 - [The Life in The Barzakh](https://www.youtube.com/playlist?list=PLYZxc42QNctVw0HhfP7N02hNlScC-3UhN)
 - [The Day of Judgement](https://www.youtube.com/playlist?list=PLYZxc42QNctXqgEpxF8L-ZItU3uBAjtOR)
-- [The Descriptions of Jannah](https://www.youtube.com/playlist?list=PLYZxc42QNctUyhcUiZ7r4UWOFUj2DQN_x)
 - [The Descriptions of Jahannam](https://www.youtube.com/playlist?list=PLYZxc42QNctWH0rBUezV3IEU84jUOqSC4)
+- [The Descriptions of Jannah](https://www.youtube.com/playlist?list=PLYZxc42QNctUyhcUiZ7r4UWOFUj2DQN_x)
 
 ## QnA
 
 ### Prayer
 
 - [What all must a follower recite when praying behind the imam?](https://www.youtube.com/watch?v=Z-iLNIhB2qg)
+- [Is there any sunnah prayer before Friday prayer?](https://www.youtube.com/watch?v=OXgkK-8NulA)
