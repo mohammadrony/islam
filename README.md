@@ -26,6 +26,10 @@ Collection of Islamic resources.
 
 ### Prayer
 
-- [What all must a follower recite when praying behind the imam?](https://www.youtube.com/watch?v=Z-iLNIhB2qg)
-- [Is there any sunnah prayer before Friday prayer?](https://www.youtube.com/watch?v=OXgkK-8NulA)
-- [Hanafi masjid prays Asr late (time of necessity) can I pray home?](https://www.youtube.com/watch?v=Hj5hBy2iA0U)
+- [What all must a follower recite when praying behind the imam? - Assim al hakeem](https://www.youtube.com/watch?v=Z-iLNIhB2qg)
+- [Is there any sunnah prayer before Friday prayer? - Assim al hakeem](https://www.youtube.com/watch?v=OXgkK-8NulA)
+- [Hanafi masjid prays Asr late (time of necessity) can I pray home? - Assim al hakeem](https://www.youtube.com/watch?v=Hj5hBy2iA0U)
+
+### Politics
+
+- [Can women be involved in politics or giving dawah? - Assim al hakeem](https://www.youtube.com/watch?v=nlJRyHhFlMQ)
