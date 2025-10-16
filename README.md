@@ -22,6 +22,18 @@ Collection of Islamic resources.
 - [The Descriptions of Jahannam](https://www.youtube.com/playlist?list=PLYZxc42QNctWH0rBUezV3IEU84jUOqSC4)
 - [The Descriptions of Jannah](https://www.youtube.com/playlist?list=PLYZxc42QNctUyhcUiZ7r4UWOFUj2DQN_x)
 
+### Hadith
+
+Short clips
+
+- [YouTube - Praying 5 Times Daily and Fasting Ramadan, Allah will forgive all his sins](https://www.youtube.com/clip/Ugkx4wcZVhsfZ3-ZIw74aGQJFJHuabjjJ70S)
+- [YouTube - Prophet (SAW:) giving 3 advice to Mu'adh Ibn Jabl](https://youtube.com/clip/Ugkxc-1yfj8Pl3Cd-Cge4Lx-tgvtX7TuYmVO)
+- [YouTube - Zikr of Allah can help someone from the punishment of Allah](https://youtube.com/clip/UgkxWWw-AAiPLLf9P1n5BvGSyF3dVmhkQg6L)
+
+Azkar
+
+- [Reward of saying 100× SubhanAllah, Alhamdulillah, Allahu Akbar](https://www.youtube.com/shorts/hY9KGz8QlZI)
+
 ## QnA
 
 ### Prayer
