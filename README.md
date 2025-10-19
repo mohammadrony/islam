@@ -40,8 +40,21 @@ Collection of Islamic resources.
 
 ## Short clips
 
-- [Yasir Qadhi - Praying 5 times daily and fasting ramadan, allah will forgive all his sins](https://www.youtube.com/clip/Ugkx4wcZVhsfZ3-ZIw74aGQJFJHuabjjJ70S)
-- [Yasir Qadhi - Have takwa of Allah, do a good deed after doing sin, interact with best of people](https://youtube.com/clip/Ugkxc-1yfj8Pl3Cd-Cge4Lx-tgvtX7TuYmVO)
-- [Yasir Qadhi - Zikr of Allah can help someone from the punishment of Allah](https://youtube.com/clip/UgkxWWw-AAiPLLf9P1n5BvGSyF3dVmhkQg6L)
+Greatness of Allah
+
+- [Yasir Qadhi - Allah allowed the Prophet (saw) to remain until the end of time and the treasures of this world](https://youtube.com/clip/Ugkx4lHUx9QrVPejhAVO9vkyEaNClqHvQDdh)
+- [Yasir Qadhi - Praying five times daily and fasting Ramadan: Allah will forgive all his sins](https://www.youtube.com/clip/Ugkx4wcZVhsfZ3-ZIw74aGQJFJHuabjjJ70S)
+
+Guidance of Prophet(saw:)
+
+- [Yasir Qadhi - Have taqwa of Allah; do a good deed after sin; interact with good people](https://youtube.com/clip/Ugkxc-1yfj8Pl3Cd-Cge4Lx-tgvtX7TuYmVO)
+
+Azkar
+
+- [Yasir Qadhi - Dhikr of Allah can help a person avoid Allah's punishment](https://youtube.com/clip/UgkxWWw-AAiPLLf9P1n5BvGSyF3dVmhkQg6L)
 - [Yasir Qadhi - Things to say after giving salam in prayer](https://youtube.com/clip/UgkxcY4IbbxPRMLNLAv7i9kkDwvdhR9xrMT9)
-- [Assim Al Hakeem - Reward of saying 100× SubhanAllah, Alhamdulillah, Allahu Akbar](https://www.youtube.com/shorts/hY9KGz8QlZI)
+- [Assim Al Hakeem - Reward for saying SubhanAllah, Alhamdulillah, Allahu Akbar 100 times](https://www.youtube.com/shorts/hY9KGz8QlZI)
+
+Tawhid
+
+- [Yasir Qadhi - Never ask anything from anyone; only ask from Allah](https://youtube.com/clip/Ugkx7XJ-ZyXodxW1Qtnd9D5rQDCU51vPm6PN)
