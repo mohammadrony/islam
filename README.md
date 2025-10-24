@@ -40,11 +40,16 @@ Politics
 
 ## Short clips
 
-Greatness of Allah
+Allah's Greatness
 
 - [Yasir Qadhi - Allah allowed the Prophet (saw) to remain until the end of time and the treasures of this world](https://youtube.com/clip/Ugkx4lHUx9QrVPejhAVO9vkyEaNClqHvQDdh)
 - [Yasir Qadhi - Praying five times daily and fasting Ramadan: Allah will forgive all his sins](https://www.youtube.com/clip/Ugkx4wcZVhsfZ3-ZIw74aGQJFJHuabjjJ70S)
 - [Yasir Qadhi - Whoever separates between a mother and her child, Allah will separate between him and his loved one on judgement day](https://youtube.com/clip/UgkxADlYq_pJ1gof1slkfQMm8_uqduKVaeyl)
+- [Yasir Qadhi - Hadith about committing sin and Allah’s forgiveness that the Sahabah were worried to narrate](https://youtube.com/clip/UgkxBUpkQ4NzPFsN8A7zP54srIjJL2bJT-8w)
+
+Tawhid
+
+- [Yasir Qadhi - Never ask anything from anyone; only ask from Allah](https://youtube.com/clip/Ugkx7XJ-ZyXodxW1Qtnd9D5rQDCU51vPm6PN)
 
 Guidance of Prophet(saw:)
 
@@ -52,12 +57,16 @@ Guidance of Prophet(saw:)
 - [Yasir Qadhi - Live in this world like a traveler](https://youtube.com/clip/UgkxNkCoc97PK5Z5bGSLsHS2fFs3uNFYQJMJ)
 - [Yasir Qadhi - Stand up to pray as it's your last prayer; never say anything that you will have to apologize tomorrow; give up desire what other people own](https://youtube.com/clip/UgkxMQolsetPtSoI8mWZIHCBbvJ_cPWlxCYT)
 
-Tawhid
+Day of Judgement
 
-- [Yasir Qadhi - Never ask anything from anyone; only ask from Allah](https://youtube.com/clip/Ugkx7XJ-ZyXodxW1Qtnd9D5rQDCU51vPm6PN)
+- [Yasir Qadhi - Everybody will talk directly to Allah without interpreter in the day of judgement and he will not find anyone around him](https://youtube.com/clip/Ugkx3fy0geQsr_0mqxM0ddglPVHfQEZSBLGB)
 
 Azkar
 
 - [Yasir Qadhi - Dhikr of Allah can help a person avoid Allah's punishment](https://youtube.com/clip/UgkxWWw-AAiPLLf9P1n5BvGSyF3dVmhkQg6L)
 - [Yasir Qadhi - Things to say after giving salam in prayer](https://youtube.com/clip/UgkxcY4IbbxPRMLNLAv7i9kkDwvdhR9xrMT9)
 - [Assim Al Hakeem - Reward for saying SubhanAllah, Alhamdulillah, Allahu Akbar 100 times](https://www.youtube.com/shorts/hY9KGz8QlZI)
+
+Halal Haram
+
+- [Yasir Qadhi - Saying Bismillah over a hunter animal before hunting](https://youtube.com/clip/UgkxskFUZQ0znn4TRZjhgX6vSGoQwH6146EZ)
