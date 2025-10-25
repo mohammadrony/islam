@@ -42,8 +42,9 @@ Politics
 
 Allah's Greatness
 
-- [Yasir Qadhi - Allah allowed the Prophet (saw) to remain until the end of time and the treasures of this world](https://youtube.com/clip/Ugkx4lHUx9QrVPejhAVO9vkyEaNClqHvQDdh)
 - [Yasir Qadhi - Praying five times daily and fasting Ramadan: Allah will forgive all his sins](https://www.youtube.com/clip/Ugkx4wcZVhsfZ3-ZIw74aGQJFJHuabjjJ70S)
+- [Yasir Qadhi - Allah allowed the Prophet (saw) to remain until the end of time and the treasures of this world](https://youtube.com/clip/Ugkx4lHUx9QrVPejhAVO9vkyEaNClqHvQDdh)
+- [Yasir Qadhi - 3 blessings of Allah for this ummah of Prophet (saw:) over all other ummah](https://youtube.com/clip/UgkxH2RmSE64k-BnfevM82mwvuMQSTsAeNW4)
 - [Yasir Qadhi - Whoever separates between a mother and her child, Allah will separate between him and his loved one on judgement day](https://youtube.com/clip/UgkxADlYq_pJ1gof1slkfQMm8_uqduKVaeyl)
 - [Yasir Qadhi - Hadith about committing sin and Allah’s forgiveness that the Sahabah were worried to narrate](https://youtube.com/clip/UgkxBUpkQ4NzPFsN8A7zP54srIjJL2bJT-8w)
 
@@ -51,22 +52,31 @@ Tawhid
 
 - [Yasir Qadhi - Never ask anything from anyone; only ask from Allah](https://youtube.com/clip/Ugkx7XJ-ZyXodxW1Qtnd9D5rQDCU51vPm6PN)
 
-Guidance of Prophet(saw:)
-
-- [Yasir Qadhi - Have taqwa of Allah; do a good deed after sin; interact with good people](https://youtube.com/clip/Ugkxc-1yfj8Pl3Cd-Cge4Lx-tgvtX7TuYmVO)
-- [Yasir Qadhi - Live in this world like a traveler](https://youtube.com/clip/UgkxNkCoc97PK5Z5bGSLsHS2fFs3uNFYQJMJ)
-- [Yasir Qadhi - Stand up to pray as it's your last prayer; never say anything that you will have to apologize tomorrow; give up desire what other people own](https://youtube.com/clip/UgkxMQolsetPtSoI8mWZIHCBbvJ_cPWlxCYT)
-
-Day of Judgement
-
-- [Yasir Qadhi - Everybody will talk directly to Allah without interpreter in the day of judgement and he will not find anyone around him](https://youtube.com/clip/Ugkx3fy0geQsr_0mqxM0ddglPVHfQEZSBLGB)
-
 Azkar
 
 - [Yasir Qadhi - Dhikr of Allah can help a person avoid Allah's punishment](https://youtube.com/clip/UgkxWWw-AAiPLLf9P1n5BvGSyF3dVmhkQg6L)
 - [Yasir Qadhi - Things to say after giving salam in prayer](https://youtube.com/clip/UgkxcY4IbbxPRMLNLAv7i9kkDwvdhR9xrMT9)
 - [Assim Al Hakeem - Reward for saying SubhanAllah, Alhamdulillah, Allahu Akbar 100 times](https://www.youtube.com/shorts/hY9KGz8QlZI)
 
+Guidance of Prophet (saw:)
+
+- [Yasir Qadhi - Prophet (saw:) predicts and command us to follow Abu bakar (ra:) and Umar (ra:)'s leadership](https://youtube.com/clip/UgkxK0KPwlT5fk4-vjThNVqtnbgS4AMI6Tx8)
+- [Yasir Qadhi - Have taqwa of Allah; do a good deed after sin; interact with good people](https://youtube.com/clip/Ugkxc-1yfj8Pl3Cd-Cge4Lx-tgvtX7TuYmVO)
+- [Yasir Qadhi - Live in this world like a traveler](https://youtube.com/clip/UgkxNkCoc97PK5Z5bGSLsHS2fFs3uNFYQJMJ)
+- [Yasir Qadhi - Stand up to pray as it's your last prayer; never say anything that you will have to apologize tomorrow; give up desire what other people own](https://youtube.com/clip/UgkxMQolsetPtSoI8mWZIHCBbvJ_cPWlxCYT)
+
+Prediction of Prophet (saw:)
+
+- [Yasir Qadhi - Prophet (saw:) predicts the trickery of the Dajjal should have two river. one is pure water and another is fire](https://youtube.com/clip/Ugkxrz3dtkHYt9VCV2djbB1Q-PYsX0VW0YTL)
+
+Day of Judgement
+
+- [Yasir Qadhi - Everybody will talk directly to Allah without interpreter in the day of judgement and he will not find anyone around him](https://youtube.com/clip/Ugkx3fy0geQsr_0mqxM0ddglPVHfQEZSBLGB)
+
 Halal Haram
 
 - [Yasir Qadhi - Saying Bismillah over a hunter animal before hunting](https://youtube.com/clip/UgkxskFUZQ0znn4TRZjhgX6vSGoQwH6146EZ)
+
+Fitna
+
+- [Yasir Qadhi -  Fitnah will be exposed to the heart one layer at a time](https://youtube.com/clip/UgkxBuavRyqo30r0SYp8D75omDOnp5AOJMVY)
