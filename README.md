@@ -61,13 +61,26 @@ Azkar
 Guidance of Prophet (saw:)
 
 - [Yasir Qadhi - Prophet (saw:) predicts and command us to follow Abu bakar (ra:) and Umar (ra:)'s leadership](https://youtube.com/clip/UgkxK0KPwlT5fk4-vjThNVqtnbgS4AMI6Tx8)
+- [Yasir Qadhi - Prophet (saw:) appointed Abu bakar (ra:) after him as a leader](https://youtube.com/clip/UgkxnSPl31j-hamHwFnTbx-Am8_LToPj9URU)
 - [Yasir Qadhi - Have taqwa of Allah; do a good deed after sin; interact with good people](https://youtube.com/clip/Ugkxc-1yfj8Pl3Cd-Cge4Lx-tgvtX7TuYmVO)
 - [Yasir Qadhi - Live in this world like a traveler](https://youtube.com/clip/UgkxNkCoc97PK5Z5bGSLsHS2fFs3uNFYQJMJ)
 - [Yasir Qadhi - Stand up to pray as it's your last prayer; never say anything that you will have to apologize tomorrow; give up desire what other people own](https://youtube.com/clip/UgkxMQolsetPtSoI8mWZIHCBbvJ_cPWlxCYT)
 
+Miracle of Prophet (saw:)
+
+- [Yasir Qadhi - Prophet (saw:) split the moon with the help of Allah in front of the congregation](https://youtube.com/clip/UgkxrorRrNzC0vUC2dIGCDrwtKzJ0bKR0U2G)
+
 Prediction of Prophet (saw:)
 
 - [Yasir Qadhi - Prophet (saw:) predicts the trickery of the Dajjal should have two river. one is pure water and another is fire](https://youtube.com/clip/Ugkxrz3dtkHYt9VCV2djbB1Q-PYsX0VW0YTL)
+
+Dua of Prophet (saw:)
+
+- [Yasir Qadhi - May Allah brighten the face of anyone who hears my hadith, understands it and then go tell somebody who hasn't heard it - Prophet (saw:)](https://youtube.com/clip/Ugkx8lx76YovRDiX0g6oXdSuJ6XBMu6tP_O8)
+
+Believers
+
+- [Yasir Qadhi - 3 things that heart of the believer will never stop doing](https://youtube.com/clip/UgkxmM0sg-M00LwqMG7IN8Pl-_QPlnSisaKt)
 
 Day of Judgement
 
