@@ -65,6 +65,7 @@ Guidance of Prophet (saw:)
 - [Yasir Qadhi - Have taqwa of Allah; do a good deed after sin; interact with good people](https://youtube.com/clip/Ugkxc-1yfj8Pl3Cd-Cge4Lx-tgvtX7TuYmVO)
 - [Yasir Qadhi - Live in this world like a traveler](https://youtube.com/clip/UgkxNkCoc97PK5Z5bGSLsHS2fFs3uNFYQJMJ)
 - [Yasir Qadhi - Stand up to pray as it's your last prayer; never say anything that you will have to apologize tomorrow; give up desire what other people own](https://youtube.com/clip/UgkxMQolsetPtSoI8mWZIHCBbvJ_cPWlxCYT)
+- [Yasir Qadhi - Whoever concentrates his desire for the hereafter then Allah will make all of his affairs easy for him](https://youtube.com/clip/UgkxvWAFfYguSHS6RcG486VQo6tvHW2nbcLJ)
 
 Miracle of Prophet (saw:)
 
