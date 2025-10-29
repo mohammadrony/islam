@@ -67,6 +67,10 @@ Guidance of Prophet (saw:)
 - [Yasir Qadhi - Stand up to pray as it's your last prayer; never say anything that you will have to apologize tomorrow; give up desire what other people own](https://youtube.com/clip/UgkxMQolsetPtSoI8mWZIHCBbvJ_cPWlxCYT)
 - [Yasir Qadhi - Whoever concentrates his desire for the hereafter then Allah will make all of his affairs easy for him](https://youtube.com/clip/UgkxvWAFfYguSHS6RcG486VQo6tvHW2nbcLJ)
 
+Prayer of Prophet (saw:)
+
+- [Yasir Qadhi - Raising the hand when starting the salah and point with index finger during tasahud](https://youtube.com/clip/Ugkx19-5v44BCfTeD5TAWViHwMcBZ-t2UP0K)
+
 Miracle of Prophet (saw:)
 
 - [Yasir Qadhi - Prophet (saw:) split the moon with the help of Allah in front of the congregation](https://youtube.com/clip/UgkxrorRrNzC0vUC2dIGCDrwtKzJ0bKR0U2G)
