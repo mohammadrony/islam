@@ -56,7 +56,7 @@ Azkar
 
 - [Yasir Qadhi - Dhikr of Allah can help a person avoid Allah's punishment](https://youtube.com/clip/UgkxWWw-AAiPLLf9P1n5BvGSyF3dVmhkQg6L)
 - [Yasir Qadhi - Things to say after giving salam in prayer](https://youtube.com/clip/UgkxcY4IbbxPRMLNLAv7i9kkDwvdhR9xrMT9)
-- [Assim Al Hakeem - Reward for saying SubhanAllah, Alhamdulillah, Allahu Akbar 100 times](https://www.youtube.com/shorts/hY9KGz8QlZI)
+- [Assim Al Hakeem - Reward for saying SubhanAllah, Alhamdulillah, Allahu Akbar, La Ilaha Illallah 100 times](https://www.youtube.com/shorts/hY9KGz8QlZI)
 
 Guidance of Prophet (saw:)
 
