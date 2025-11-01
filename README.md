@@ -90,6 +90,10 @@ Believers
 
 - [Yasir Qadhi - 3 things that heart of the believer will never stop doing](https://youtube.com/clip/UgkxmM0sg-M00LwqMG7IN8Pl-_QPlnSisaKt)
 
+Jihad
+
+- [Yasir Qadhi - Standing one hour in the path of Allah is better than all of lifetime of deeds with your family](https://youtube.com/clip/Ugkxqou253JaVGi94Im7lckGarPCjjTz-V7J)
+
 Day of Judgement
 
 - [Yasir Qadhi - Everybody will talk directly to Allah without interpreter in the day of judgement and he will not find anyone around him](https://youtube.com/clip/Ugkx3fy0geQsr_0mqxM0ddglPVHfQEZSBLGB)
