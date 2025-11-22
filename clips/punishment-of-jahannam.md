@@ -1,11 +1,16 @@
 # Punishment of Jahannam
 
+Types of punishment
+
+- [People of the Jahannam are going to be walking between the heat of the fire and the heat of the water](https://youtube.com/clip/UgkxgHjghpTMiuo2_-xWFMT8nG3v-eHemATw)
+
 Sins that are punished in hell
 
 - [One of the most blessed person of this world will be brought and dip in Jahannam and he will forget all the pleasures he had](https://youtube.com/clip/UgkxGPFwHWgzaKoLkgqqQopnfrZoPKNzbV_P)
 - [One of the least punished in Jahannam will agree to give all of this world in ransom to be taken out](https://youtube.com/clip/UgkxZMzbVusssycKRiAaSlRPvyzWeMoePwPU)
 - [Whoever lies about Prophet (saw:) intentionally, let him be prepared to seek his place in Jahannam](https://youtube.com/clip/UgkxycMZ9UcGlqtOY_9NpMQWURVjE3YP99DI)
 - [A believer shall have hope for forgiveness as long as he doesn't kill an innocent man intentionally](https://youtube.com/clip/UgkxgySPtvh__GJRlB-FoGyL2rk1r9bAidvr)
+- [Tyrant regimes that torture people and those who help the regime will be punished in Jahannam](https://youtube.com/clip/Ugkx5OXKyZAI21YYGp9dW9tzcyQ6lW3XLaDn)
 - [Drinking from the utensils of gold and silver as if he is drinking the fire of hell into him](https://youtube.com/clip/Ugkxp1KNwKaJpWVvgqwdRJfo2XKvxpRI-Oky)
 - [Charging riba and any types of defrauding of the people from their money is promised with Jahannam](https://youtube.com/clip/UgkxgMNjYSG1xHkNMA7EvEy0eyLyp9e4URbc)
 - [Every flesh and body that is fed with the money that acquired illegally, it is more befitting that body goes to the fire of hell](https://youtube.com/clip/Ugkx3Q3QIaIWy5L_-zp3b_wsLGUazYIq_WSs)

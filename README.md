@@ -30,3 +30,5 @@ Collection of Islamic resources.
 - [Believers Guideline](./clips/believers-guideline.md)
 - [Day of Judgement](./clips/day-of-judgement.md)
 - [Punishment of Jahannam](./clips/punishment-of-jahannam.md)
+- [Tawbah and Istighfar](./clips/tawbah-and-istighfar.md)
+- [Save from the Jahannam](./clips/save-from-jahannam.md)
