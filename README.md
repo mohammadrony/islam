@@ -30,7 +30,7 @@ Characteristics of Muslim
 
 - [Question and Answer](./clips/question-and-answer.md)
 - [Reminder of Allah](./clips/reminder-of-allah.md)
-- [Life of Prophet (saw:)](./clips/life-of-prophet-(saw:).md)
+- [Life of Prophet (saw:)](./clips/life-of-prophet-(saw.).md)
 - [Believers Guideline](./clips/believers-guideline.md)
 - [Day of Judgement](./clips/day-of-judgement.md)
 - [Punishment of Jahannam](./clips/punishment-of-jahannam.md)
