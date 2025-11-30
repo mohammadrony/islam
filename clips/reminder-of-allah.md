@@ -4,7 +4,7 @@ Greatness of Allah
 
 - [Yasir Qadhi - Praying five times daily and fasting Ramadan: Allah will forgive all his sins](https://www.youtube.com/clip/Ugkx4wcZVhsfZ3-ZIw74aGQJFJHuabjjJ70S)
 - [Yasir Qadhi - Allah allowed the Prophet (saw) to remain until the end of time and the treasures of this world](https://youtube.com/clip/Ugkx4lHUx9QrVPejhAVO9vkyEaNClqHvQDdh)
-- [Yasir Qadhi - 3 blessings of Allah for this ummah of Prophet (saw:) over all other ummah](https://youtube.com/clip/UgkxH2RmSE64k-BnfevM82mwvuMQSTsAeNW4)
+- [Yasir Qadhi - 3 blessings of Allah for this ummah of Prophet (saw.) over all other ummah](https://youtube.com/clip/UgkxH2RmSE64k-BnfevM82mwvuMQSTsAeNW4)
 - [Yasir Qadhi - Whoever separates between a mother and her child, Allah will separate between him and his loved one on judgement day](https://youtube.com/clip/UgkxADlYq_pJ1gof1slkfQMm8_uqduKVaeyl)
 - [Yasir Qadhi - Hadith about committing sin and Allah’s forgiveness that the Sahabah were worried to narrate](https://youtube.com/clip/UgkxBUpkQ4NzPFsN8A7zP54srIjJL2bJT-8w)
 

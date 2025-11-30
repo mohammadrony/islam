@@ -8,7 +8,7 @@ Sins that are punished in hell
 
 - [One of the most blessed person of this world will be brought and dip in Jahannam and he will forget all the pleasures he had](https://youtube.com/clip/UgkxGPFwHWgzaKoLkgqqQopnfrZoPKNzbV_P)
 - [One of the least punished in Jahannam will agree to give all of this world in ransom to be taken out](https://youtube.com/clip/UgkxZMzbVusssycKRiAaSlRPvyzWeMoePwPU)
-- [Whoever lies about Prophet (saw:) intentionally let him prepare for his place in the fire of hell](https://www.youtube.com/clip/UgkxkSybZp1zM8C07_HdvOYv8vmrvbBPL2U-)
+- [Whoever lies about Prophet (saw.) intentionally let him prepare for his place in the fire of hell](https://www.youtube.com/clip/UgkxkSybZp1zM8C07_HdvOYv8vmrvbBPL2U-)
 - [A believer shall have hope for forgiveness as long as he doesn't kill an innocent man intentionally](https://youtube.com/clip/UgkxgySPtvh__GJRlB-FoGyL2rk1r9bAidvr)
 - [Tyrant regimes that torture people and those who help the regime will be punished in Jahannam](https://youtube.com/clip/Ugkx5OXKyZAI21YYGp9dW9tzcyQ6lW3XLaDn)
 - [Drinking from the utensils of gold and silver as if he is drinking the fire of hell into him](https://youtube.com/clip/Ugkxp1KNwKaJpWVvgqwdRJfo2XKvxpRI-Oky)

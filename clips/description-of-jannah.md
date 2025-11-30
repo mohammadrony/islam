@@ -13,4 +13,4 @@
 - [If all of mankind are gathered in any one level it would be sufficient for all of them](https://youtube.com/clip/UgkxqmlA54txRR3cHmdCnQ29uMqVn6WKjGqB)
 - [Whoever prays 5 times a day and fast the month of Ramadan, has a grantee from Allah that he shall be forgiven](https://youtube.com/clip/UgkxY3jC6tGOJqZ6qqY3BOfOnhMV6rpABGdG)
 - [Who memorize the Quran he will rise up one level of Jannah for every verse he recites](https://youtube.com/clip/Ugkxi4fVVrAMK-9wZ9WCk7zT7f-HMCN1q0Wt)
-- [Reply to the call of Azan and ask Allah to grant our Prophet (saw:) Al Wasila the highest rank of Jannah for him](https://youtube.com/clip/UgkxU3l6imxlw8DkKg_A3w4tZ-CjjIvzNmtV)
+- [Reply to the call of Azan and ask Allah to grant our Prophet (saw.) Al Wasila the highest rank of Jannah for him](https://youtube.com/clip/UgkxU3l6imxlw8DkKg_A3w4tZ-CjjIvzNmtV)

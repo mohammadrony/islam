@@ -44,9 +44,6 @@
 | Dec 21     | Dec 31    | 5:22 AM    | 6:34 AM  | 12:04 PM   | 3:05 PM   | 3:39 PM  | 5:25 PM      | 6:45 PM    |           |
 | Date Start | Date End  | Fajr Start | Fajr End | Johr Start | Asr Start | Asr End1 | Magrib Start | Isha Start | Isha End1 |
 
-## Disclaimer
+## Explanation
 
-- Collected from yearly calender.
-- Could have 1 or 2 minutes more or less.
-- Asr prayer start time is taken from the opinion of some major scholars. [QnA](https://islamqa.info/en/answers/9940/what-are-the-times-of-the-five-daily-prayers).
-- Asr prayer's first end time here when shadow of an object is approximately twice of its length. As we don't know when sun turns yellow.
+- [What Are the Times of the Five Daily Prayers?](https://islamqa.info/en/answers/9940/what-are-the-times-of-the-five-daily-prayers)
